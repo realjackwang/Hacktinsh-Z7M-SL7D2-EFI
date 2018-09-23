@@ -3,7 +3,7 @@
 
 
 
-配置：
+## **配置：**[点击查看参数](http://product.pconline.com.cn/notebook/hasee/622821_detail.html)
 
 电脑型号：	No Enclosure N15_17RF 笔记本电脑  (扫描时间：2018年09月23日)
 
